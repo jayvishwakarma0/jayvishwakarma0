@@ -1,5 +1,3 @@
-![Profile Views](https://komarev.com/ghpvc/?username=jayvishwakarma0&color=blue)
-
 # 👋 Hi, I’m Jay Vishwakarma!
 
 ## 🚀 About Me
